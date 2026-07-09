@@ -25,3 +25,4 @@ Welcome to my GitHub!
 ## Contact
 Feel free to connect with me!
 Hikimotowolabi123@gmail.com
+https://www.linkedin.com/in/hikimot-owolabi-b8a605418
